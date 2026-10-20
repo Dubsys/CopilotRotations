@@ -1,0 +1,2 @@
+# CopilotRotations
+Shut up
